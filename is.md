@@ -1,0 +1,1 @@
+gpt、clash、github、deepseek、workbuddy
